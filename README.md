@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **anshchachra0@gmail.com**
 
-- ⚡ Fun fact **fun fact here**
+- ⚡ Fun fact **two apples together are two apples together**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
